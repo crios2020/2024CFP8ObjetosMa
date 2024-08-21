@@ -28,6 +28,9 @@ Github:     https://github.com/crios2020/2024CFP8ObjetosMa
 
 codeshare:  https://codeshare.io/crios2020
 
+Grupo wsp:  https://chat.whatsapp.com/JZDBbXTk8pJGqiXNMc7Cpi
+
+
 
 
 
